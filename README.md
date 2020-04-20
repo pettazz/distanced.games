@@ -1,0 +1,1 @@
+So you wanna play some cards over the internet with some people you actually know? How is there not a way to do this in 2020 that doesn't involve signing up for the Hasbro rewards club or logging in with Facebook permissions?
